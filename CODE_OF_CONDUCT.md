@@ -3,7 +3,7 @@
 
 Harassment includes offensive verbal comments related to gender, sexual orientation, disability, physical appearance, body size, race, religion, sexual images in public spaces, deliberate intimidation, stalking, following, harassing photography or recording, sustained disruption of talks or other events, inappropriate physical contact, and unwelcome sexual attention.
 
-We expect any participants asked to stop any harassing behaviour to comply immediately.
+I expect any participants asked to stop any harassing behaviour to comply immediately.
 
 ## Participants agree to:
 
